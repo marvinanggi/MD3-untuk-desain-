@@ -15,3 +15,7 @@ Usahakan ikuti grid Instagram ya✨👍😉
 
 
 https://discord.com/invite/NxRyqesaNN
+
+# Anda dapat mengunjungi link ini untuk mengambil asset
+
+https://fonts.google.com/icons
