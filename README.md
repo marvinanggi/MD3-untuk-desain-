@@ -3,4 +3,7 @@
 Anda dapat mengambil file sorry bukan link, secara gratis
 Usahakan ikuti grid Instagram ya✨👍😉
 
-# Punya masalah yang sama bisa hubungi saya di server Discord Yoshohika projects https://discord.com/invite/NxRyqesaNN
+# Punya masalah yang sama bisa hubungi saya di server Discord Yoshohika projects 
+
+
+https://discord.com/invite/NxRyqesaNN
