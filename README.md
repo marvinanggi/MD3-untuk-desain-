@@ -10,7 +10,7 @@ Usahakan ikuti grid Instagram ya✨👍😉
 
 ![alt text](https://github.com/marvinanggi/MD3-untuk-desain-/blob/main/New%20Project%20103%20%5B73C0AF2%5D.png?raw=true)
 
-![4p9p4o](https://github.com/marvinanggi/MD3-untuk-desain-/blob/main/New%20Project%20103%20Copy%20%5BE3B4EC0%5D.mp4)
+https://github.com/marvinanggi/MD3-untuk-desain-/assets/134036756/77e29b92-77f9-4449-afe6-bdf76cea11d5
 
 
 # Punya masalah yang sama bisa hubungi saya di server Discord Yoshohika projects 
